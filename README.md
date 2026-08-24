@@ -1,0 +1,1 @@
+# ASUS-Z97-K-R2.0-Resizable-BAR-bios
